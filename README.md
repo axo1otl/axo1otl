@@ -1,0 +1,9 @@
+- 🔭 I’m currently working on something
+- 🌱 I’m currently learning.
+- 👯 I’m looking to collaborate eventually.
+- 🤔 I’m looking for help.
+- 💬 Ask me.
+- 📫 How to reach me: an arm?
+- 😄 Pronouns: he/they
+- ⚡ Fun fact: - 🔭 I’m currently working on something - 🌱 I’m currently learning. - 👯 I’m looking to collaborate eventually. - 🤔 I’m looking for help. - 💬 Ask me. - 📫 How to reach me: an arm? - 😄 Pronouns: he/they 
+-->
